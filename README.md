@@ -7,7 +7,7 @@ I enjoy each lesson you teach.
 As my role model you inspire me
 To dream and to work and to reach.
 
-With your kindness your attention,
+With your kindness and your attention,
 Every day you are planting a seed
 Of curiosity and motivation
 To know and to grow and succeed.
